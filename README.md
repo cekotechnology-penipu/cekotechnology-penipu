@@ -1,4 +1,6 @@
-PENIPUAN CEKOTECHNOLOGY.COM PENIPU 2022 - 2521316341 - Agung Priyo Utomo - 087820000778
+PENIPUAN CEKOTECHNOLOGY.COM PENIPU 2022 - BCA 2521316341 / BCA 7960667802 - Agung Priyo Utomo - 087820000778
+
+UPDATE TERBARU TERNYATA SINDIKAT INI MENGGUNAKAN BANYAK REKENING BCA, MANDIRI, BNI, BRI, DLL DENGAN NAMA YANG SAMA YAITU AGUNG PRIYO UTOMO ATAU NAMA YANG BERBEDA2. WASPADA!!!
 
 Harap waspada dan berhati2 dengan web bodong ini cekotechnology.com, menawarkan paket website, seo, apps, adwords, iklan berbayar, dll ternyata bodong! Sudah banyak korban!
 
@@ -9,7 +11,7 @@ Mereka juga memasang backlink di web2 yg strategis sehingga terlihat meyakinkan 
 Berikut saya lampirkan info aktor penipu ini:
 
 Website: cekotechnology.com PENIPU
-Rekening BCA: 2521316341 PENIPU
+Rekening BCA: 2521316341 / 7960667802 PENIPU
 Atas Nama: Agung Priyo Utomo PENIPU
 WA: 087820000778 / +62 878-2000-0778 PENIPU
 
@@ -35,3 +37,7 @@ https://ads.id/forums/index.php?members/cekotechnology-penipu.240311
 https://www.kompasiana.com/cekotechnologypenipu
 
 https://cekotechnology-com-penipu.blogspot.com/2022/03/penipuan-cekotechnologycom-penipu-2022.html
+
+https://sites.google.com/view/cekotechnology-com-penipu/home
+
+UPDATE TERBARU TERNYATA SINDIKAT INI MENGGUNAKAN BANYAK REKENING BCA, MANDIRI, BNI, BRI, DLL DENGAN NAMA YANG SAMA YAITU AGUNG PRIYO UTOMO ATAU NAMA YANG BERBEDA2. WASPADA!!!
