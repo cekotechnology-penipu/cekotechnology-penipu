@@ -11,8 +11,11 @@ Mereka juga memasang backlink di web2 yg strategis sehingga terlihat meyakinkan 
 Berikut saya lampirkan info aktor penipu ini:
 
 Website: cekotechnology.com PENIPU
+
 Rekening BCA: 2521316341 / 7960667802 PENIPU
+
 Atas Nama: Agung Priyo Utomo PENIPU
+
 WA: 087820000778 / +62 878-2000-0778 PENIPU
 
 Silahkan di cek di cekrekening.id atau di web2 yang serupa untuk mengecek status rekening penipu atau tidak atau untuk info lebih lanjut mengenai rekening tersebut.
